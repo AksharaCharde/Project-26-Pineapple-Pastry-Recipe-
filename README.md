@@ -1,0 +1,1 @@
+This recipe is about pineapple flavoured pastry.
